@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **aseefm25@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CexEJdVfYHfDMuC1yBctstT5ZqfBHBs3/view?usp=sharing](https://drive.google.com/file/d/1CexEJdVfYHfDMuC1yBctstT5ZqfBHBs3/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1CexEJdVfYHfDMuC1yBctstT5ZqfBHBs3/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
